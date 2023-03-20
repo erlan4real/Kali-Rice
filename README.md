@@ -1,3 +1,4 @@
 # Kali-Rice
-all files not made by me Its Im just Downloading all config and modfify just like that!
+all files not made by me  just take from other People  and modify just like that !
+THis Is bAckUp
 Enjoy
